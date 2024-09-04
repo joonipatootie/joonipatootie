@@ -2,8 +2,19 @@
 - i have a carrd in my page and a wack strawpage…… 😹
 - i  currentky make hazbin art (sometiems the owl huse :p) ik its a bit scary 
 - dont copy my skins, i will know and i will doxx u ^^
+
+
+------------------------------------------------------------------------------------------------------------------------
+
+
 WHEN YOU SEE ME !! YAYAY! :
 Im okay with cuddling and small talk, though im not on pt for long if im not with close friends sadly, sorry if im dry with you at first I SWEAR IM NOT LIKE THAT ALL THE TIME PLEASE !!!!! check carrd or strawpage for fandoms and other stuff like music 🙀
+
+
+------------------------------------------------------------------------------------------------------------------------------------------------------
+
+
+
 STATS : 
 Online - i dont use this lol.
 Away - i guess just afk ? maybe just forgetting on even on there
