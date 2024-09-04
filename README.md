@@ -17,9 +17,17 @@ Im okay with cuddling and small talk, though im not on pt for long if im not wit
 
 STATS : 
 Online - i dont use this lol.
+
+
 Away - i guess just afk ? maybe just forgetting on even on there
+
+
 Lookin 4 chat - PLEEASEEE talk to me i love people sometimes 
+
+
 Lookin 4 RP - i dont use this much, but mainly 4 my friends C-:
+
+
 Busy - im MOST LIKELY drawing or just offtab !! 
 <!---
 joonipatootie/joonipatootie is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
