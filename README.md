@@ -1,4 +1,4 @@
- HAIII! my name is jooni (main name),  u can also call me star or char im playing (mostly vox) :3 it doenst matter ! 
+ HAIII! my name is jooni (main name),  u can also call me star or just the char im playing (mostly vox) :3 it doenst matter ! 
 - i have a carrd in my page and a wack strawpage…… 😹
 - i  currentky make hazbin art (sometiems the owl huse :p) ik its a bit scary 
 - dont copy my skins, i will know and i will doxx u ^^
@@ -16,6 +16,7 @@ Im okay with cuddling and small talk, though im not on pt for long if im not wit
 
 
 STATS : 
+
 Online - i dont use this lol.
 
 
