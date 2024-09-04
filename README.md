@@ -1,7 +1,8 @@
--  HAIII! my name is jooni (main name),  u can also call me star or char im playing :3 it doenst matter ! 
+-  HAIII! my name is jooni (main name),  u can also call me star or char im playing (mostly vox) :3 it doenst matter ! 
 - i have a carrd in my page and a wack strawpage…… 😹
 - i  currentky make hazbin art (sometiems the owl huse :p) ik its a bit scary 
-- i escaped the house as an infant and almost got kidnapped !! ^_^
+- dont copy my skins, i will know and i will doxx u ^^
+
 
 <!---
 joonipatootie/joonipatootie is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
