@@ -2,6 +2,7 @@
 - i have a carrd in my page and a wack strawpage…… 😹
 - i  currentky make hazbin art (sometiems the owl house :p) ik its a bit scary 
 - dont copy my skins, i will know and i will doxx u ^^
+- i dont like roleplaying out in the open,, (sorry) we can just talk and be funny !
 
 
 ------------------------------------------------------------------------------------------------------------------------
