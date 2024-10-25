@@ -31,7 +31,14 @@ Lookin 4 RP - i dont use this much, but mainly 4 my friends C-:
 
 
 Busy - im MOST LIKELY drawing or just offtab !! 
-<!---
+
+----------------------------------------------------------------------------------------------------------------
+
+
+ER im just not comfy with (i need to add more to this)
+
+- dont baby vox and vel, they are as bad as val.
+- oversexual comments,, im a minor and its uncomfy for me to talk abt that in the open or at all ^^
 joonipatootie/joonipatootie is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
