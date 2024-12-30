@@ -1,5 +1,5 @@
  HAIII! my name is jooni (main name),  u can also call me star or just the char im playing (mostly vox) :3 it doenst matter ! 
-- i have a carrd in my page and a wack strawpage…… 😹
+- i have a wack strawpage…… 😹
 - i  currentky make hazbin art (sometiems the owl house :p) ik its a bit scary 
 - dont copy my skins, i will know and i will doxx u ^^
 - i dont like roleplaying out in the open,, (sorry) we can just talk and be funny !
