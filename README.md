@@ -1,31 +1,10 @@
- HAIII! my name is jooni (main name),  u can also call me star or just the char im playing (mostly vox) :3 it doenst matter ! 
+ ## this is a work in progess ......
 - i have a wack strawpage…… but its good if u wanna see my fandoms or stuff. 
-- i  currentky make hazbin art (sometiems the owl house :p) ik its a bit scary 
-- dont copy my skins, i will know and i will doxx u ^^
-- i dont like roleplaying out in the open,, (sorry) we can just talk and be funny !
-------------------------------------------------------------------------------------------------------------------------
-
-WHEN YOU SEE ME !! YAYAY! :
-Im okay with cuddling and small talk, though im not on pt for long if im not with close friends sadly, sorry if im dry with you at first I SWEAR IM NOT LIKE THAT ALL THE TIME PLEASE !!!!! 
-
-------------------------------------------------------------------------------------------------------------------------------------------------------
-STATS : 
-
-Online - i dont use this lol.
-
-
-Away - i guess just afk ? maybe just forgetting on even on there
-
-
-Lookin 4 chat - PLEEASEEE talk to me i love people sometimes 
-
-
-Lookin 4 RP - i dont use this much, but mainly 4 my friends C-:
-
-
-Busy - im MOST LIKELY drawing or just offtab !! 
-
-----------------------------------------------------------------------------------------------------------------
+- i  currently make art and is thinking of doing comms but not sure yet 💔 
+- if you need tips for skin __DONT__ ask me,, im **terrible** at explaining and
+- i go with the flow with all of my skins. 
+- i **dont** like roleplaying out in the open,, (sorry) we can just talk and be funny yk !!!!!
+--------------------------------------------------------------------------------------------------------------------- 
 ER im just not comfy with (i need to add more to this)
 
 - dont baby vox and vel, they are as bad as val.
