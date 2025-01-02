@@ -4,5 +4,5 @@ hai ! my name is joon/star or u can callme the character my pony is !
 
  i  currently make art and is thinking of doing comms but not sure yet 💔 
  if you need tips for skin __DONT__ ask me,, im **terrible** at explaining and i go with the flow with all of my skins hep..... 
- i **dont** like roleplaying out in the open,, (sorry) we can just talk and be funny yk !!!!! warning i am a __minor__ so ik im asking too much but dont be too weird PLEEEAAASEEEE.
+ i **dont** like roleplaying out in the open,, (sorry) we can just talk and be funny yk !!!!! warning i am a __minor__ so ik im asking too much but dont be too weird PLEEEAAASEEEE. my spelling sucks so bad most of the time sp sorry,, if you need me to correct myself dont b afraid to,, it happens.. 
 - check my strawpages for more info ^^ poopytwon is specifically for ships n the others are abt me !
