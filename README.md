@@ -1,5 +1,4 @@
- ## this is a work in progess ......
- --------------------------------------------------------------------------------------------------------------------- 
+ ## this is a work in progess ...... 
 - i have a wack strawpage…… but its good if u wanna see my fandoms or stuff. 
 - i  currently make art and is thinking of doing comms but not sure yet 💔 
 - if you need tips for skin __DONT__ ask me,, im **terrible** at explaining and
