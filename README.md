@@ -29,4 +29,4 @@ Busy - im MOST LIKELY drawing or just offtab !!
 ER im just not comfy with (i need to add more to this)
 
 - dont baby vox and vel, they are as bad as val.
-- oversexual comments,, im a minor and its uncomfy for me to talk abt that in the open or at all ^^
+- oversexual comments that ARENT jokes ,, im a minor and its uncomfy for me to talk abt that in the open or at all ^^
