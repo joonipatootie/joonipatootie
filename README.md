@@ -1,4 +1,4 @@
- ![IMG_3536](https://github.com/user-attachments/assets/07a1066b-caef-4cbb-8f4a-5fecd57157a5)
+ ![Untitled63_20250102153910](https://github.com/user-attachments/assets/eacbab01-d6ac-4fb6-b287-77eee7870536)
  ## this is a work in progess ......
 - i have a wack strawpage…… but its good if u wanna see my fandoms or stuff. 
 - i  currently make art and is thinking of doing comms but not sure yet 💔 
