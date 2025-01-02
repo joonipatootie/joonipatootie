@@ -1,12 +1,12 @@
  HAIII! my name is jooni (main name),  u can also call me star or just the char im playing (mostly vox) :3 it doenst matter ! 
-- i have a wack strawpage…… 😹
+- i have a wack strawpage…… but its good if u wanna see my fandoms or stuff. 
 - i  currentky make hazbin art (sometiems the owl house :p) ik its a bit scary 
 - dont copy my skins, i will know and i will doxx u ^^
 - i dont like roleplaying out in the open,, (sorry) we can just talk and be funny !
 ------------------------------------------------------------------------------------------------------------------------
 
 WHEN YOU SEE ME !! YAYAY! :
-Im okay with cuddling and small talk, though im not on pt for long if im not with close friends sadly, sorry if im dry with you at first I SWEAR IM NOT LIKE THAT ALL THE TIME PLEASE !!!!! check strawpages for fandoms and other stuff like music 🙀
+Im okay with cuddling and small talk, though im not on pt for long if im not with close friends sadly, sorry if im dry with you at first I SWEAR IM NOT LIKE THAT ALL THE TIME PLEASE !!!!! 
 
 ------------------------------------------------------------------------------------------------------------------------------------------------------
 STATS : 
