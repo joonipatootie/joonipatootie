@@ -4,8 +4,10 @@
 - dont copy my skins, i will know and i will doxx u ^^
 - i dont like roleplaying out in the open,, (sorry) we can just talk and be funny !
 ------------------------------------------------------------------------------------------------------------------------
+
 WHEN YOU SEE ME !! YAYAY! :
 Im okay with cuddling and small talk, though im not on pt for long if im not with close friends sadly, sorry if im dry with you at first I SWEAR IM NOT LIKE THAT ALL THE TIME PLEASE !!!!! check strawpages for fandoms and other stuff like music 🙀
+
 ------------------------------------------------------------------------------------------------------------------------------------------------------
 STATS : 
 
