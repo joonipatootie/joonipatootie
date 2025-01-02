@@ -1,4 +1,4 @@
- ## this is a work in progess ......[IMG_3536.zip](https://github.com/user-attachments/files/18294662/IMG_3536.zip)
+ ## this is a work in progess ...... ![IMG_3536](https://github.com/user-attachments/assets/07a1066b-caef-4cbb-8f4a-5fecd57157a5)
 
 - i have a wack strawpage…… but its good if u wanna see my fandoms or stuff. 
 - i  currently make art and is thinking of doing comms but not sure yet 💔 
