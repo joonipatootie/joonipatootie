@@ -1,4 +1,5 @@
- ![Untitled63_20250102153910](https://github.com/user-attachments/assets/eacbab01-d6ac-4fb6-b287-77eee7870536)
+
+<img width="457" height="370" alt="Untitled114_20251120160215" src="https://github.com/user-attachments/assets/f04e1506-1c70-483b-af00-8888d2b66a3b" />
 
 hai ! my name is joon/star or u can callme the character my pony is !
 
